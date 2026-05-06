@@ -20,9 +20,9 @@ I love meeting new people! Come say hi!!  ꉂ(˵˃ ᗜ ˂˵)
  <img width="500" height="500" alt="coolcat dsaf art by heralyce on deviantart" src="https://github.com/user-attachments/assets/f9aa94a7-b6a2-4e28-8753-125daf9c0037" />
 !
 
-⬩➤ my preferences on names & pronouns change a lot, so I dont expect the average person to care. David and masc pronouns work just fine Ი︵𐑼
+⬩➤ my preferences on names & pronouns change a lot, so I dont expect the average person to care. David and masc pronouns work just fine
 
-Please forgive me. I'm borderpolar and have identity issues!
+Please forgive me. I'm borderpolar and have identity issues! (ᵕ— ᴗ —)
 
 this isn't an excuse for my actions btw!! PLEASE tell me if i do something to upset or discomfort you. i can handle discussions and boundaries
  
